@@ -5,7 +5,7 @@ $\color{#1F344D}{\textsf{just}}$ $\color{#254F61}{\textsf{know}}$ $\color{#28616
 
 $\color{#1F344D}{\textsf{with}}$ $\color{#1E4252}{\textsf{my}}$ $\color{#254F61}{\textsf{wounded}}$ $\color{#28616B}{\textsf{animal}}$ $\color{#85D6B5}{\textsf{act.}}$
 
-<img src="https://files.catbox.moe/33nyc3.png" width="600" alt="color spectrum">
+<img src="https://files.catbox.moe/33nyc3.png" width="600" alt="color spectrum" title="ac: bei-cha">
 
 $\color{#1F344D}{\textsf{please}}$ $\color{#254F61}{\textsf{pray}}$ $\color{#28616B}{\textsf{for}}$ $\color{#85D6B5}{\textsf{me.}}$
 
