@@ -9,5 +9,5 @@ $\color{#1F344D}{\textsf{with}}$ $\color{#1E4252}{\textsf{my}}$ $\color{#254F61}
 
 $\color{#1F344D}{\textsf{please}}$ $\color{#254F61}{\textsf{pray}}$ $\color{#28616B}{\textsf{for}}$ $\color{#85D6B5}{\textsf{me.}}$
 
-
+$\color{#1F344D}{\textsf{‧₊}}$ $\color{#28616B}{\textsf{♪˚⊹}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [prns](https://pronouns.cc/@killerspectrum) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $\color{#85D6B5}{\textsf{⋆✴︎}}$  $\color{#2C7D79}{\textsf{˚｡⋆}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [ata](https://colorspectrum.atabook.org/?page=1)
 <img src="https://64.media.tumblr.com/f3f74569931e12f2e86c902080e60501/4c03cf772ce7f671-c5/s2048x3072/ff4e93f9a1cf96a96e4b52131c57197e3037bc6e.pnj" alt="bottom cloud divider" width="800" title="ic: uzmacchiato"></a>
